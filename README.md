@@ -1,5 +1,3 @@
-# STUDY
+## My Tec Vlog : https://foxyprogramming.tistory.com
 
-# My Tec Vlog : https://foxyprogramming.tistory.com
-
-# Call : +82 010-9604-5210
+## Call : +82 010-9604-5210
